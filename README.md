@@ -20,7 +20,7 @@ My name is **Islam Muhammed**, and I’m an engineering student at **KSU, Egypt*
 
 ### 📫 How to Reach Me
 
-* [LinkedIn]([https://www.linkedin.com/in/islam-mu7ammed/])
+* [LinkedIn](https://www.linkedin.com/in/islam-mu7ammed/)
 * [Email](islammu7ammed.official@gmail.com)
 
 ### ⚡ Fun Fact
